@@ -1,4 +1,4 @@
-# 
+# Enhance Jupyter Notebook for PC | Jupyter Notebook for Windows with updated Jupyter Notebook for PC | Jupyter Notebook for Windows Integration | multi-sheet-management +
 
 
 
